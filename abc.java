@@ -1,3 +1,0 @@
-lmo pqr
-fsdf
-SDf
